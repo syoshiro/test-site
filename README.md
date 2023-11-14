@@ -1,0 +1,1 @@
+# syoshiro.github.io
